@@ -1,3 +1,3 @@
 - Email giraldocardonajulian@gmail.com
-- Discord Jusot#1200
+- Discord syshian
 
