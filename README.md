@@ -1,3 +1,3 @@
-- Email giraldocardonajulian@gmail.com
+- Email
 - Discord syshian
 
